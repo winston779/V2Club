@@ -1,6 +1,6 @@
 # V2Club机场官网地址
 
-最新地址：[v2fly.club](https://vip.v2club.cc/#/register?code=jYy3Xyzm)
+最新地址：[v2fly.club](https://v2club.net/#/register?code=jYy3Xyzm)
 
 ## V2Club介绍
 
